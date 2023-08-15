@@ -1,4 +1,4 @@
-- 👋 I's Just Dan (And I'm enough)
+- 👋 I'm Just Dan (And I'm enough)
 - 👀 And I'm great at doing stuff.
 - 🌱#NotASprout
 - 💞️24/7 -> 365 Days Just Dany
